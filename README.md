@@ -1,3 +1,4 @@
 # project
+In collaboration with @jainaagam96
 
-jainaagam96/Buddybun
+We're preparing our final documentation and will be uploaded soon...
